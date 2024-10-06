@@ -1,1 +1,1 @@
-# casual
+Acquaintances are people we know but haven't really spent time with. [purelycasual](https://purelycasual.com/ethnographic-photographs-by-paul-coze/) friends are the friends we hang out with at work or pottery class, for company and camaraderie. Close friends are our besties that we share everything with. Lifelong friends, or childhood friends, are practically family.
